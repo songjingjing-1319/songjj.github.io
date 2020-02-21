@@ -1,1 +1,1 @@
-# hello welcome to songjj first blog
+# hello, welcome to songjj first blog
